@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @FlameOfChesire
+- 👋 Hi, I’m @Ram Chesi
 - 👀 I’m interested in videogames and cibersecurity
 - 🌱 I’m currently learning both of them
 - 💞️ I’m looking to collaborate on some indie projecs of videogames
